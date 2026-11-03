@@ -1,0 +1,2 @@
+# Fern's Voice Training
+You've found my voice training repo, hello! In this you'll find a compilation of resources, notes, and the documents I've prepared and use nearly daily for my voice training. I've been practicing vocal feminization since 2025 and sincerely hope this will be of some use to whoever finds them. I'll update them often as I learn more or simply settle into different exercise preferences.
