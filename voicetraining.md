@@ -65,7 +65,7 @@ Say the following sentences with relaxed voicing.
 - Olivia was embarassed by all of Alice's attention.
 - It was an eye-opening experience for Allison.
 - It is an effort to understand Aunt Alice's accent.
-- Olivia's used automobiles are usually under eight thousand.
+- Olivia's used automobiles are usually under eight thousand dollars.
 
 ## Resonance
 As in the Warm-up, start each word with a hum sound and carry it through without letting your voice drop into your throat.
