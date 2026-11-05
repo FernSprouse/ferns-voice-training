@@ -9,7 +9,7 @@
 
 ### Belly Breathing
 Place one hand on your chest and one hand on your belly.
-- **Inhale**: Breathe in through your nose. Think about breathing low to fill up the bottom of your lungs. As you breathe in, you should feel your belly press out and/or your ribs expand to the sides. The hand on your chest should stay relatively still.
+- **Inhale**: Breathe in through your nose. Think about breathing low to fill up the bottom of your lungs. As you breathe in, you should feel your belly press out and your ribs expand to the sides. The hand on your chest should stay relatively still.
 - **Exhale**: Breathe out with pursed lips. As you breathe out, gently contract your abdominals. Think about pressing the air up from below as you exhale.
 
 ### Cup Bubbles
