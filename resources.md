@@ -16,6 +16,3 @@ Some recommended voice training content.
 ### Youtube Videos
 - [TransVoiceLessons](https://www.youtube.com/@TransVoiceLessons)
   - Specifically [The Art of Voice Feminization Series](https://youtube.com/playlist?list=PLYJkVI7LLpknvBww07jnsxbz-_Lkynsry&si=wNe0yl587R5KQGNy)
-
-### Books and Articles
-- [The Voice Book for Trans and Non-Binary People: A Practical Guide to Creating and Sustaining Authentic Voice Communication by Matthew Mills and Gillie Stoneham](https://books.google.com/books/about/The_Voice_Book_for_Trans_and_Non_Binary.html?id=N9rADQAAQBAJ)
