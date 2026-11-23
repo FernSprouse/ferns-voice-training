@@ -16,3 +16,4 @@ Some recommended voice training content.
 ### Youtube Videos
 - [TransVoiceLessons](https://www.youtube.com/@TransVoiceLessons)
   - Specifically [The Art of Voice Feminization Series](https://youtube.com/playlist?list=PLYJkVI7LLpknvBww07jnsxbz-_Lkynsry&si=wNe0yl587R5KQGNy)
+- [Rain's Cursed Voice Training CHEAT CODE!](https://youtu.be/qkszkU3j8NQ)
